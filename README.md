@@ -6,7 +6,9 @@
 
 **Transformando regras de negócio em software útil, organizado e testável.**
 
-📍 Manaus, AM — Brasil · 🎯 Em busca de oportunidades como desenvolvedor
+📍 Manaus, AM · Em busca de oportunidades de estágio ou desenvolvimento júnior
+
+[E-mail](mailto:almeidasouza838@gmail.com) · [WhatsApp](https://wa.me/5592992793765)
 
 </div>
 
