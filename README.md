@@ -138,8 +138,10 @@ Estou em busca de **oportunidades de estágio ou desenvolvimento júnior**, espe
 
 **Idiomas:** português · inglês intermediário · espanhol intermediário.
 
-<!-- email: alessandroalmeida_souza@hotmail.com. -->
+## 📬 Contato
 
+- **E-mail:** [almeidasouza838@gmail.com](mailto:almeidasouza838@gmail.com)
+- **Telefone / WhatsApp:** [(92) 99279-3765](https://wa.me/5592992793765)
 ---
 
 <div align="center">
